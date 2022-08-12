@@ -1,1 +1,1 @@
-# Dariusz
+Plik readme narazie pusty
